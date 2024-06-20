@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tomasz-Kaminski-PG
+- 👋 Hi, I’m Tomasz Kamiński
 - 👀 I’m interested in: not starving each month
 - 🌱 I’m currently learning: how to survine each day
 - 💞️ I’m looking to collaborate on: practicing social distance
